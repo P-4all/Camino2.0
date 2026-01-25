@@ -1,4 +1,4 @@
-# Journal
+# Summer 2025 - Journal 
 Notes, reflections, and images.
 
 ---

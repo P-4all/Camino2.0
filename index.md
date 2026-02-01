@@ -8,4 +8,4 @@ Notes, reflections, and images.
 
 [Segundo día: Londres](posts/2025-08-01-Londres.md) / [Second day: London](posts/2025-08-01-London.md)
 
-[Tercer día: No demaisado](posts/2025-08-02-No demasiado.md) / [Third day: Not too much](posts/2025-08-02-Not too much.md)
+[Tercer día: No demaisado](posts/2025-08-02-No-demasiado.md) / [Third day: Not too much](posts/2025-08-02-Not-too-much.md)

@@ -6,13 +6,21 @@
 
 Hoy, se podría decir que ha sido un día muy bueno. Como siempre, son las 23:26; estoy en la cama del hostal, ya duchado y con la ropa lavada, y listo para reflexionar sobre el día de hoy. 
 
-Me desperte con un podo de dolor ene l bajo vientre y en la espalda, estaba un poco preocupado por eso y crei que era debido a la alimentacion y el no hacer de vientre. Decidí entonces ir al Coop y comprar un porridge ya hecho que solo necesita agua caliente y un plátano. Cuando fuy a pedir agua al hostal no habia nadie en la barra, la recepcionista estaba muy atareada entonces me acerque a la zona donde unos minutos antes fue el desayuno. Me encontre un tip limpiando y le pedi agua, me dijo que le dijera a la recepcionista y yo le dije que estaba muy ocupada y el me dijo, bueno yo tambien. 
+Me desperte con un poco de dolor ene el bajo vientre y en la espalda, estaba un poco preocupado por eso y crei que era debido a la alimentacion y el no hacer de vientre. Decidí entonces ir al Coop y comprar un porridge ya hecho, que solo necesita agua caliente, y un plátano. Cuando fuy a pedir agua al hostal no habia nadie en la barra, la recepcionista estaba muy atareada entonces me acerque a la zona donde unos minutos antes fue el desayuno. Me encontre un tipo limpiando y le pedi agua, me dijo que le dijera a la recepcionista y yo le dije que estaba muy ocupada y el me dijo, bueno yo tambien. 
 
 Ya no insistí más y me fui a la barra a esperar; al poco rato, vino una chica y me dio agua caliente. 
 
-Mientras desayunaba habia un grupo super grande de personas con un polo axul, debia ser de algo, con gente de todas las edades y muy diverso. Había uno que no paraba de fumar con dentadura postiza: se la sacaba y se la ponía todo el rato. ¡Qué asco!
+Mientras desayunaba habia un grupo super grande de personas con un polo azul, debia ser algun grupo de algo, con gente de todas las edades y muy diverso. Había uno que no paraba de fumar con dentadura postiza: se la sacaba y se la ponía todo el rato. ¡Qué asco!
 
 Mientras desayunaba, decidí ir a visitar el "Borough Market" que solo está a 20 minutos caminando. Fui y había un montón de gente haciendo cola por todo: paella, fresas con chocolate y cosas así. Era súper caro y muy enfocado al turismo. Entonces decidí continuar caminando hasta el London Field Market. Lo encontré después de caminar una hora; pasé por El Sushi Samba en la calle Bishop Gate. Pasé por Liverpool Street y todo el mundo venía con plantas (muy curioso).
+
+<p align="center">
+<img src="../images/20250801/20250801_London_South_Bank1124.JPEG" width="75%" height="75%" />
+</p>
+<p align="center">
+Fotografia scada en South Bank a las 11:24.
+</p>
+
 Al llegar me sorprendio gratamente, habia gente pero no estaba tan masificado. Después de recorrerlo de arriba a abajo, decidí comer en una pizzería. Me sente bastante bien, de poster me pedi un helado de miel y gengibre que me lo comi de camino al parque. En el parque había un lugar donde la gente entrenaba calistenia, muy fibrados. Encontré un lugar donde sentarme a meditar, justo enfrente de un campo de críquet, donde estaban jugando. nunca habia visto un partido de critcket antes, todos de blanco. 
 
 Después hice unos pocos estiramientos para la espalda, cogí el tren con el objetivo de ir a un bar a bailar bachata, bajé en Liverpool Street y de ahí cogí la línea roja y paré en Tottenham Court Road. De ahí ya estás en el Soho y lo encontré. Me dijeron que las clases no empezaban hasta las 6, pero solo eran las 4:30. Entonces decidí pasear; llegué al barrio chino y encontré un médico. Le pedí un masaje de reflexología podal, que me vino como anillo al dedo.

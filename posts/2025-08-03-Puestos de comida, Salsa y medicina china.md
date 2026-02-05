@@ -44,7 +44,6 @@ Tipico Autobus Londinense en Elephant and Castle.
 En fin, para cenar no tenía muy claro qué hacer y al final me decidí por la opción sana, fruta, huevos duros y un batido de frutas del bosque rojas. ¡Así! Al salir de la estación de metro en Tottenham, me encontré con un edificio en el cual dentro había proyecciones en las paredes y en el techo de cosas súper chulas y con música, una experiencia para los sentidos muy alucinante. Veías a la gente ahí parada, mirando, y a los niños flipando. Al final me fui, pero me hubiera quedado más tiempo. A si! Al salir del baile, ya no tenía ningún dolor de espalda; creo que me hacía falta mover el esqueleto y el masaje de los pies hace milagros. Creo que esto resume el día bastante bien. Bona nit.
 
 [![Mira el Video](https://raw.githubusercontent.com/P-4all/Camino2.0/main/images/20250803/20250803_Tottehnham.png)](
-https://github.com/P-4all/Camino2.0/releases/download/video/20250803_Tottenham_court_Road.MP4
-)
+https://raw.githubusercontent.com/P-4all/Camino2.0/main/images/20250803/20250803_Tottenham_court_Road.MP4)
 
 

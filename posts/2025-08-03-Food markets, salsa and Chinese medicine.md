@@ -34,4 +34,11 @@ After that, I did a few stretches for my back, took the train with the aim of go
 
 When I came out, it was pouring with rain, but it stopped after 10 or 15 minutes. The guy wanted me to get another massage while I waited. I arrived at the bar and had to wait an hour; there were some guys filming a scene for a movie or a series. Very strange. Very amateur. When it started, I signed up for bachata and salsa. It was a lot of fun, and I met a couple of very interesting girls, but when it ended, I didn’t say anything to them. Since it was already late and I was tired, I decided to go back to the hostel, as tomorrow I have to catch a flight to Bilbao and start the Apapacho Fest. I’m thinking that depending on how tomorrow goes, I might take a few days off from writing and resume on the 10th when I start the Camino—or maybe not, we’ll see.
 
+<p align="center">
+<img src="../images/20250803/20250803_London_Elephant_and_castle.JPEG" width="75%" height="75%" />
+</p>
+<p align="center">
+Tipico Autobus Londinense en Elephant and Castle.
+</p>
+
 Anyway, for dinner I wasn’t very sure what to do, and in the end I chose the healthy option: fruit, hard-boiled eggs, and a red berry smoothie. Oh! When I came out of the Tottenham metro station, I came across a building where, inside, there were projections on the walls and ceiling—really cool visuals with music, a mind-blowing sensory experience. You could see people standing there watching, and kids totally amazed. In the end, I left, but I could have stayed much longer. Oh! And after leaving the dance class, I no longer had any back pain; I think I really needed to move my skeleton, and foot massages work miracles. I think that sums up the day pretty well. Good night.

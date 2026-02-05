@@ -14,6 +14,13 @@ While I was having breakfast, there was a huge group of people wearing blue polo
 
 While eating breakfast, I decided to visit Borough Market, which is only a 20-minute walk away. I went there, and there were tons of people queuing for everything: paella, strawberries with chocolate, and so on. It was super expensive and very tourist-oriented. So I decided to keep walking to London Fields Market. I found it after walking for an hour; I passed by Sushi Samba on Bishopsgate Street and went through Liverpool Street, where everyone was carrying plants (very curious).
 
+<p align="center">
+<img src="../images/20250803/20250803_sushi_samba.jpg" width="75%" height="75%" />
+</p>
+<p align="center">
+Sushi Samba.
+</p>
+
 When I arrived, I was pleasantly surprised: there were people, but it wasn’t overcrowded. After walking through it from top to bottom, I decided to eat at a pizzeria. It sat really well with me, and for dessert I had a honey and ginger ice cream, which I ate on the way to the park. In the park there was an area where people were training calisthenics—very lean and muscular. I found a place to sit and meditate, right in front of a cricket field where they were playing. I had never seen a cricket match before; everyone was dressed in white.
 
 After that, I did a few stretches for my back, took the train with the aim of going to a bar to dance bachata. I got off at Liverpool Street and from there took the red line and stopped at Tottenham Court Road. From there, you’re already in Soho, and I found the place. They told me the classes didn’t start until 6, but it was only 4:30. So I decided to go for a walk; I reached Chinatown and found a doctor. I asked for a foot reflexology massage, which came in incredibly handy.

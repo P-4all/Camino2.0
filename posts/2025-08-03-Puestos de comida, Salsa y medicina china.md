@@ -45,7 +45,7 @@ En fin, para cenar no tenía muy claro qué hacer y al final me decidí por la o
 
 <!-- Embedding a GitHub Release video with HTML5 -->
 <video width="640" height="360" controls>
-  <source src="https://private-user-images.githubusercontent.com/135712541/545866332-951f5e18-0435-4a43-8897-029334b7bcf4.MP4?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzAzMjkwNzMsIm5iZiI6MTc3MDMyODc3MywicGF0aCI6Ii8xMzU3MTI1NDEvNTQ1ODY2MzMyLTk1MWY1ZTE4LTA0MzUtNGE0My04ODk3LTAyOTMzNGI3YmNmNC5NUDQ_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMjA1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDIwNVQyMTU5MzNaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT03MTkxZmIzNmNlMGExOGFjNGZhN2Y1ZTFmMDViMTljMjk2YTVkNmRmNWRmZGU1NDY4MmUwOTRlODZlNThmNzk1JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.QXx2YndTnNggCtKWVAoCYNUkjNdqnnGI4n3HCQtP9Rw" type="video/mp4">
+  <source src="https://github.com/P-4all/Camino2.0/releases/download/video/20250803_Tottenham_court_road.MP4" type="video/mp4">
 </video>
 
 

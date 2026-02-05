@@ -15,7 +15,7 @@ Mientras desayunaba, había un grupo súper grande de personas con polos azules;
 Mientras desayunaba, decidí ir a visitar el "Borough Market" que solo está a 20 minutos caminando. Fui y había un montón de gente haciendo cola por todo: paella, fresas con chocolate y cosas así. Era súper caro y muy enfocado al turismo. Entonces decidí continuar caminando hasta el "London Field Market". Lo encontré después de caminar una hora; pasé por El Sushi Samba en la calle Bishop Gate. Pasé por Liverpool Street y todo el mundo venía con plantas (muy curioso).
 
 <p align="center">
-<img src="../images/20250803_sushi_Samba.jpg" width="75%" height="75%" />
+<img src="../images/20250803/20250803_sushi_samba.jpg" width="75%" height="75%" />
 </p>
 <p align="center">
 Sushi Samba.
@@ -43,4 +43,4 @@ Tipico Autobus Londinense en Elephant and Castle.
 
 En fin, para cenar no tenía muy claro qué hacer y al final me decidí por la opción sana, fruta, huevos duros y un batido de frutas del bosque rojas. ¡Así! Al salir de la estación de metro en Tottenham, me encontré con un edificio en el cual dentro había proyecciones en las paredes y en el techo de cosas súper chulas y con música, una experiencia para los sentidos muy alucinante. Veías a la gente ahí parada, mirando, y a los niños flipando. Al final me fui, pero me hubiera quedado más tiempo. A si! Al salir del baile, ya no tenía ningún dolor de espalda; creo que me hacía falta mover el esqueleto y el masaje de los pies hace milagros. Creo que esto resume el día bastante bien. Bona nit.
 
-[![Mira el videoo](https://raw.github.com/P-4all/Camino2.0/main/images/20250803/20250803_Tottenham.png)](https://raw.github.com/P-4all/Camino2.0/main/images/20250803/20250803_Tottenham_court_Road.mp4)
+[![Mira el video](https://raw.github.com/P-4all/Camino2.0/main/images/20250803/20250803_Tottenham.png)](https://raw.github.com/P-4all/Camino2.0/main/images/20250803/20250803_Tottenham_court_Road.mp4)

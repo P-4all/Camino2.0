@@ -45,7 +45,7 @@ En fin, para cenar no tenía muy claro qué hacer y al final me decidí por la o
 
 <!-- Embedding a GitHub Release video with HTML5 -->
 <video width="640" height="360" controls>
-  <source src="https://github.com/P-4all/Camino2.0/releases/download/video/20250803_Tottenham_court_road.MP4" type="video/mp4">
+  <source src="https://github.com/P-4all/Camino2.0/releases/tag/video/20250803_Tottenham_court_road.MP4" type="video/mp4">
 </video>
 
 

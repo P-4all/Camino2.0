@@ -6,22 +6,22 @@
 
 Hoy, se podría decir que ha sido un día muy bueno. Como siempre, son las 23:26; estoy en la cama del hostal, ya duchado y con la ropa lavada, y listo para reflexionar sobre el día de hoy. 
 
-Me desperté con un poco de dolor en el bajo vientre y en la espalda. Estaba un poco preocupado por eso y creí que era por la alimentación y por no hacer de vientre. Decidí entonces ir al Coop y comprar un porridge ya hecho, que solo necesita agua caliente y un plátano. Cuando fui a pedir agua al hostal, no había nadie en la barra; la recepcionista estaba muy atareada, entonces me acerqué a la zona donde unos minutos antes fue el desayuno. Me encontré un tipo limpiando y le pedí agua. Me dijo que le dijera a la recepcionista y yo le dije que estaba muy ocupada. Él me dijo: bueno, yo también. 
+Me desperté con un poco de dolor en el bajo vientre y en la espalda. Estaba un poco preocupado por eso y creí que era por la alimentación y por no hacer de vientre. Decidí entonces ir al Co-op y comprar un porridge ya hecho, que solo necesita agua caliente y un plátano. Cuando fui a pedir agua al hostal, no había nadie en la barra; la recepcionista estaba muy atareada. Entonces me acerqué a la zona donde unos minutos antes se había hecho el desayuno. Me encontré con un tipo que estaba limpiando y le pedí agua. Me dijo que le dijera a la recepcionista y yo le dije que estaba muy ocupada. Él me dijo: «Bueno, yo también». 
 
 Ya no insistí más y me fui a la barra a esperar; al poco rato, vino una chica y me dio agua caliente. 
 
-Mientras desayunaba, había un grupo súper grande de personas con un polo azul; debía ser algún grupo de algo, con gente de todas las edades y muy diversa. Había uno que no paraba de fumar con dentadura postiza: se la sacaba y se la ponía todo el rato. ¡Qué asco!
+Mientras desayunaba, había un grupo súper grande de personas con polos azules; debía ser algún grupo de algo, con gente de todas las edades y muy diversa. Había uno que no paraba de fumar con dentadura postiza: se la sacaba y se la ponía todo el rato. ¡Qué asco!
 
-Mientras desayunaba, decidí ir a visitar el "Borough Market" que solo está a 20 minutos caminando. Fui y había un montón de gente haciendo cola por todo: paella, fresas con chocolate y cosas así. Era súper caro y muy enfocado al turismo. Entonces decidí continuar caminando hasta el London Field Market. Lo encontré después de caminar una hora; pasé por El Sushi Samba en la calle Bishop Gate. Pasé por Liverpool Street y todo el mundo venía con plantas (muy curioso).
+Mientras desayunaba, decidí ir a visitar el "Borough Market" que solo está a 20 minutos caminando. Fui y había un montón de gente haciendo cola por todo: paella, fresas con chocolate y cosas así. Era súper caro y muy enfocado al turismo. Entonces decidí continuar caminando hasta el "London Field Market". Lo encontré después de caminar una hora; pasé por El Sushi Samba en la calle Bishop Gate. Pasé por Liverpool Street y todo el mundo venía con plantas (muy curioso).
 
 <p align="center">
-<img src="../images/20250803/20250801_sushi_samba.JPEG" width="75%" height="75%" />
+<img src="../images/20250801_sushi_samba.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
 Sushi Samba.
 </p>
 
-Al llegar me sorprendio gratamente, habia gente pero no estaba tan masificado. Después de recorrerlo de arriba a abajo, decidí comer en una pizzería. Me senté bastante bien; de postre, me pedí un helado de miel y jengibre que me lo comí de camino al parque. En el parque había un lugar donde la gente entrenaba calistenia, muy fibrados. Encontré un lugar donde sentarme a meditar, justo enfrente de un campo de críquet, donde estaban jugando. nunca habia visto un partido de critcket antes, todos de blanco. 
+Al llegar, me sorprendió gratamente; había gente, pero no estaba tan masificado. Después de recorrerlo de arriba a abajo, decidí comer en una pizzería. Me senté bastante bien; de postre, me pedí un helado de miel y jengibre que me lo comí de camino al parque. En el parque había un lugar donde la gente entrenaba calistenia, muy fibrados. Encontré un lugar donde sentarme a meditar, justo enfrente de un campo de críquet, donde estaban jugando. nunca habia visto un partido de critcket antes, todos de blanco. 
 
 <p align="center">
 <img src="../images/20250803/20250803_London_Fields.JPEG" width="75%" height="75%" />
@@ -41,6 +41,6 @@ Al salir me encontré con que estaba lloviendo a raudales, pero paró a los 10 o
 Tipico Autobus Londinense en Elephant and Castle.
 </p>
 
-En fin, para cenar no tenía muy claro qué hacer y al final me decidí por la opción sana, fruta, huevos duros y un batido de frutas del bosque rojas. A si! al salir de la estacion de metro en Tottenham me encontre con un edificio en el cual dento habian proyecciones en las paredes y en el techo de cosas super chulas y con musica, una experiencia para los sentidos muy alucinante, veias la gente hay parados mirando y los ninos flipando. Al final me fui, pero me hubiera quedado más tiempo. A si! Al salir del baile, ya no tenía ningún dolor de espalda; creo que me hacía falta mover el esqueleto y el masaje de los pies hace milagros. Creo que esto resume el día bastante bien. Bona nit.
+En fin, para cenar no tenía muy claro qué hacer y al final me decidí por la opción sana, fruta, huevos duros y un batido de frutas del bosque rojas. ¡Así! Al salir de la estación de metro en Tottenham, me encontré con un edificio en el cual dentro había proyecciones en las paredes y en el techo de cosas súper chulas y con música, una experiencia para los sentidos muy alucinante. Veías a la gente ahí parados mirando y a los niños flipando. Al final me fui, pero me hubiera quedado más tiempo. A si! Al salir del baile, ya no tenía ningún dolor de espalda; creo que me hacía falta mover el esqueleto y el masaje de los pies hace milagros. Creo que esto resume el día bastante bien. Bona nit.
 
-<video src="https://github.com/user/repo/assets/20250803/20250803_Tottenham_court_Road.mp4" controls width="600"></video>
+<video src="https://github.com/P-4all/Camino2.0/images/20250803/20250803_Tottenham_court_Road.mp4" controls width="600"></video>

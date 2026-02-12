@@ -39,5 +39,5 @@ Let’s focus on the festival. When I arrived, there were already loads of peopl
 <img src="../images/20250804/20250804_Karrantza_Harana_Valle.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
-REar path next to the River in the Valley
+The rear path next to the River in the Valley
 </p>

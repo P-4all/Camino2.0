@@ -1,6 +1,6 @@
 # From UK to Karranza
 
-[index](../index)
+[index](../index.md)
 
 ## Tuesday 5 August
  

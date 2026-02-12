@@ -1,10 +1,11 @@
 # De UK a Karranza
+
 [indice](../index.md)
 
-# Martes 5 de Agosto
+## Martes 5 de Agosto
 
 
-Son las 16:25. Estoy en el valle de Carranza, en un balneario que creo que se llama Poloti o algo así. Estoy súper contento y feliz de estar aquí. Ayer no escribi pero si que tuve tiempo, en elAeropuerto de BIlbao, pero no lo hice, y que pensaba que debia haber un momento, entes de ir a dormir para reflexionar sobre el dia y tal, pero esta manana, aqui en el festival, hay gente para todos los gustos y todos los colores y he visto a una chica que estaba escribiendo, y me ha servido de inspiracion para escribir cuando crea que lo necesito, ya que escribir me auyda a ordenar las ideas, los pensamientos y saber lo que quiero o necesito. Bueno, voy ahora a intentar resumir el día de ayer. 
+Son las 16:25. Estoy en el valle de Karranza, en un balneario que creo que se llama Poloti o algo así. Estoy súper contento y feliz de estar aquí. Ayer no escribi pero si que tuve tiempo, en elAeropuerto de BIlbao, pero no lo hice, y que pensaba que debia haber un momento, entes de ir a dormir para reflexionar sobre el dia y tal, pero esta manana, aqui en el festival, hay gente para todos los gustos y todos los colores y he visto a una chica que estaba escribiendo, y me ha servido de inspiracion para escribir cuando crea que lo necesito, ya que escribir me auyda a ordenar las ideas, los pensamientos y saber lo que quiero o necesito. Bueno, voy ahora a intentar resumir el día de ayer. 
 
 En ralidad no paso nada excepcional, me sesperrte, hice la mocjhila y me fui a coger el tren hacia al aeropuerto. Primero, el metro desde "Elephant and Castle" y luego en London Bridge cogí el primer tren hacia Gatwick. Llegué con unas 3 horas de antelación; el trayecto duró aproximadamente una hora y aproveché para meditar. 
 

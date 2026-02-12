@@ -9,7 +9,7 @@ Son las 23:15. Estoy en la zona de cargar los teléfonos debajo de la gran palme
 Acabo de venir del espectáculo de hoy, "Ángel Rielo", un humorista que no lo hace del todo mal, pero estoy un poco cansado y me apetece reír, no estar por ahí de fiesta.
 
 
-[![Whatch the video](https://raw.githubusercontent.com/P-4all/Camino2.0/main/images/20250803/20250803_Tottehnham.png)](https://private-user-images.githubusercontent.com/135712541/545866332-951f5e18-0435-4a43-8897-029334b7bcf4.MP4?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzAzMzEzMDgsIm5iZiI6MTc3MDMzMTAwOCwicGF0aCI6Ii8xMzU3MTI1NDEvNTQ1ODY2MzMyLTk1MWY1ZTE4LTA0MzUtNGE0My04ODk3LTAyOTMzNGI3YmNmNC5NUDQ_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMjA1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDIwNVQyMjM2NDhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT04MTYwMWNhNzg4N2I0YjY2YjUyZTc3YzU3MzU3MDRjN2FmYWFlMDVmYzUwMmUwNTlmYTBlODc5N2I4MjEwNmIyJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.V8Uw5KDNY_3FwtUTj3WEaNKnIANpq-Z57VMnDRyaDA8)
+[![Whatch the video](https://raw.githubusercontent.com/P-4all/Camino2.0/main/images/20250806/20250806_Karranza_Harana_Valle.jpg)](https://github.com/user-attachments/assets/e15909b3-d84c-4728-bf92-5c1cf5555464)
 
 Hoy he conocido a un montón de gente súper interesante. Bueno, como todavía no he contado nada de las dinámicas, voy a empezar por el primer día, o mejor dicho, la noche.
 

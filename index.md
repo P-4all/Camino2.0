@@ -12,4 +12,4 @@ Notes, reflections, and images.
 
 [Cuarto día: Puestos de comida, Salsa y medicina china](posts/2025-08-03-Puestos-de-comida.md) / [Forth day: Food markets, salsa and Chinese medicine](posts/2025-08-03-Food-markets.md)
 
-[Quinto día: De UK a Karranza](posts/2025-08-05-De-UK-a-Karranza.md) / [Fifth day: From the UK to Karranza](posts/2025-08-05-From-the-UK-to-Karranza.md)
+[Quinto día: De UK a Karranza](posts/2025-08-05-De-UK-a-Karranza.md) / [Fifth day: From the UK to Karranza](posts/2025-08-05-From-UK-to-Karranza.md)

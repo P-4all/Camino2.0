@@ -15,8 +15,29 @@ I went for breakfast at a place whose name I can’t remember and ordered a Moro
 
 On the plane, I read almost half of one book, and at Bilbao Airport, I nearly finished it. After waiting almost three hours, I found the bus, on which only four people got on: a Basque man called Jaime; a girl, Evelina; a Catalan woman, Marta; and another girl who arrived later and about whom I know very little — well, actually, I do know she’s volunteering and learning tarot.
 
+<p align="center">
+<img src="../images/20250804/20250804_Aeropuerto_bilbao.JPEG" width="75%" height="75%" />
+</p>
+<p align="center">
+Vasque country map at Bilbao's airport
+</p>
+
 At Bilbao bus station, the rest of the group got on. There were about 14 or 15 of us. We headed towards the coast, entered Cantabria and then went back into the Basque Country to avoid a very winding road.
+
+<p align="center">
+<img src="../images/20250804/20250804_Bilbao_Castanos.JPEG" width="75%" height="75%" />
+</p>
+<p align="center">
+Guggenheim Museum from the bus
+</p>
 
 This place is wonderful — so much greenery and freshness. At night, it’s about 15 degrees with one hundred per cent humidity; I touched the tent, and it was wet. During the day, it’s warmer in the sun, but in the shade, with the breeze, it’s very pleasant.
 
 Let’s focus on the festival. When I arrived, there were already loads of people, but I was among the first to register. They put a wristband on me and gave me a welcoming hug — an apapacho. Here, everyone gives each other apapachos. In fact, right in front of me, there are two people hugging now. There’s a really lovely energy and all sorts of people here, with different motivations and intentions. Some make jokes about this whole spiritual scene; others seem quite advanced on their path. You can also see people who’ve come to find out what all this is about, not really knowing where they are or what they’ll discover — and others who’ve come simply hoping to hook up. People are very keen!
+
+<p align="center">
+<img src="../images/20250804/20250804_Karrantza_Harana_Valle.JPEG" width="75%" height="75%" />
+</p>
+<p align="center">
+REar path next to the River in the Valley
+</p>

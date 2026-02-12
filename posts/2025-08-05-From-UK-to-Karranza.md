@@ -19,7 +19,7 @@ On the plane, I read almost half of one book, and at Bilbao Airport, I nearly fi
 <img src="../images/20250804/20250804_Aeropuerto_bilbao.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
-Vasque country map at Bilbao's airport
+Basque country map at Bilbao's airport
 </p>
 
 At Bilbao bus station, the rest of the group got on. There were about 14 or 15 of us. We headed towards the coast, entered Cantabria and then went back into the Basque Country to avoid a very winding road.

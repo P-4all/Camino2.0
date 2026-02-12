@@ -8,6 +8,8 @@ It’s 11:15 p.m. I’m in the phone charging area under the big palm tree in th
 
 I’ve just come back from tonight’s show, Ángel Rielo, a comedian who isn’t bad at all, but I’m a bit tired and feel more like laughing than going out partying.
 
+[![Whatch the video](https://raw.githubusercontent.com/P-4all/Camino2.0/main/images/20250806/20250806_Karranza_Harana_Valle.jpg)](https://github.com/user-attachments/assets/e15909b3-d84c-4728-bf92-5c1cf5555464)
+
 Today I’ve met a lot of super interesting people. Since I haven’t explained anything yet about the group dynamics, I’ll start from the first day—or rather, the first night.
 
 A coach arrived late and we had to wait a long time for dinner to be served. Today I found out that the chairs for the outdoor dining area also arrived late.

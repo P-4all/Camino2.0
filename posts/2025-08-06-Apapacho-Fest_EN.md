@@ -6,7 +6,7 @@
 
 It’s 11:15 p.m. I’m in the phone charging area under the big palm tree in the middle of the garden, between the road and the river. I don’t use my phone much, but it’s at fifty-two percent now; if I manage to charge it fully, I probably won’t need to charge it again.
 
-I’ve just come back from tonight’s show, Ángel Rielo, a comedian who isn’t bad at all, but I’m a bit tired and feel more like laughing than going out partying.
+I’ve just come back from tonight’s show, Ángel Rielo, a comedian who isn’t bad at all, but I’m a bit tired and don't feel like laughing or going out partying.
 
 [![Whatch the video](https://raw.githubusercontent.com/P-4all/Camino2.0/main/images/20250806/20250806_Karranza_Harana_Valle.jpg)](https://github.com/user-attachments/assets/e15909b3-d84c-4728-bf92-5c1cf5555464)
 

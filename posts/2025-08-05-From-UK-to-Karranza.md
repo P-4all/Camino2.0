@@ -1,7 +1,9 @@
-# Tuesday 5 August
+# From UK to Karranza
+
 [index](../index)
 
-# From UK to Karranza
+## Tuesday 5 August
+ 
 
 It’s 16:25. I’m in the Karranza Valley, at a spa resort which I think is called Paloti or something like that. I’m super happy and grateful to be here. I didn’t write yesterday, even though I had time at Bilbao Airport. I didn’t do it because I thought there had to be a specific moment, before going to sleep, to reflect on the day and all that. But this morning, here at the festival, there are all sorts of people, and I saw a girl who was writing. She inspired me to write whenever I feel I need to, since writing helps me organise my ideas and thoughts, and understand what I want or need. Anyway, I’m going to try to summarise yesterday.
 

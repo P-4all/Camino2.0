@@ -19,7 +19,7 @@ En el avión casi me leí medio libro y en el aeropuerto de Bilbao casi lo termi
 <img src="../images/20250804/20250804_Aeropuerto_bilbao.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
-Mapa del País VAsco en el Aeropuerto de Bilbao
+Mapa del País vasco en el Aeropuerto de Bilbao
 </p>
 
 En la estación de bus de Bilbao se montó el reso de gente. Había unas 14 o 15 personas. Fuimos para la costa, entramos a Cantabria y volvimos a entrar al País Vasco para no ir por una carretera con muchas curvas. 

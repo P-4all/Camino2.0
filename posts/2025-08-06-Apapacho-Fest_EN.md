@@ -1,8 +1,8 @@
-# The Nature of Being and Other Phenomena
+# Being's nature and Other Phenomena
 
 [index](../index.md)
 
-## Wednesday 6^th August
+## Wednesday 6 August
 
 It’s 11:15 p.m. I’m in the phone charging area under the big palm tree in the middle of the garden, between the road and the river. I don’t use my phone much, but it’s at fifty-two percent now; if I manage to charge it fully, I probably won’t need to charge it again.
 

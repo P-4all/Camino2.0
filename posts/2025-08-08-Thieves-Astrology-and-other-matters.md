@@ -1,5 +1,5 @@
 # Thieves, Astrology and Other Matters
-[Index] (../index.md)
+[Index](../index.md)
 
 ## Friday, August 8
 

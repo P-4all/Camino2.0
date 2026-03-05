@@ -27,7 +27,7 @@
 
  Para terminar el taller todos sentados en circulo exprese mi opinion o mejor dicho mi experiencia y dije: "gracias a todos proque vi en cada uno de ellos que todos eran seres de luz includido yo y me pude identificar en cada uno de ellos, lo que me da a pensar que podria ser en universos paralelos yo estoy viviendo todas mis reencoarnaciones y me pude ver yo en otras existencias, como mujer, como hombre, mas joven, mas viejo. mas feo mas guapo etc. todos clara luz en difernetes recipientres que solo son la interpretacion de mi mente".
  Hoy tienes mucho más que explicar. El pensamiento que me cruza la mente ahora es que la gente aquí, creo, está empezando a cansarse y se nota un ambiente hostil, pero solo en ciertas personas. ( a percepcion mia) Hay grupitos que se van creando, parejas,...
- Después del taller hablé con el francés de la música y me habló de los árboles y del lugar mágico. Me dijo que fuera a pasear por un pasillo de árboles para ver qué energía encontraba. AL final del pasillo había una chica, de cuyo nombre no me acuerdo, con la que hablamos un montón. Muy guapa. le conte cosas muy intimas y muy privadas, pero lo lleve de una forma muy natural, la veredad creo que la mejor converacion que he tenido en mucho tiempo. Es de Sant Celoni y se llama igual que la chica con la que me chocé en el taller, ¿qué casualidad?
+ Después del taller hablé con el francés de la música y me habló de los árboles y del lugar mágico. Me dijo que fuera a pasear por un pasillo de árboles para ver qué energía encontraba. AL final del pasillo había una chica, de cuyo nombre no me acuerdo, con la que hablamos un montón. Muy guapa. Le conté cosas muy íntimas y muy privadas, pero lo llevé de una forma muy natural; la verdad, creo que la mejor conversación que he tenido en mucho tiempo. Es de Sant Celoni y se llama igual que la chica con la que me chocé en el taller, ¿qué casualidad?
 
  <p align="center">
 <img src="../images/20250808/20250808_Karrantza_Harana_Valle_.JPEG" width="75%" height="75%" />
@@ -43,7 +43,7 @@ Río junto a la vereda de atrás entre la sala externa y la zona de camping
  También me hizo una carta astral y, con lo poco que hemos compartido, supo cuál es mi signo del zodíaco. Además, me dijo que tengo la luna en libra . Lo cual significa que soy una persona que busca el equilibrio, muy tierna y amorosa, que no le gustan los conflictos y que trata de evitarlos, y que soy muy indeciso. 100\%.
 
  <p align="center">
-<img src="../images/20250808/20250808_carta_astral.jpg" width="75%" height="75%" />
+<img src="../images/20250808/20250808_carta astral.jpg" width="75%" height="75%" />
 </p>
 <p align="center">
 Carta aastral
@@ -65,7 +65,7 @@ Carta aastral
  Durante la meditación con los ojos abiertos me he enfocado en el cielo  y, en el fondo del todo, veía líneas blancas formando valdosas hexagonales muy sutiles; luego esas líneas se movían y se hacían como estrellas, como de mosaico, de valdosas azules con líneas blancas. Entonces mi mente ha captado la idea de quee staba dentre de una cupula como en el la pelicula del show de truman.
 
  <p align="center">
-<img src="../images/20250808/20250808_Karrantza_Harana_Valle2316.JPEG" width="75%" height="75%" />
+<img src="../images/20250808/20250808_Karrantza_Harana_valle2316.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
 La sala externa

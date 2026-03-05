@@ -57,6 +57,14 @@ After the workshop, I spoke with the French musician about trees and the magical
 
 At the end of that path, there was a girl whose name I don’t remember. We talked a lot. Very beautiful. I told her very intimate and private things, but in a very natural way. Honestly, I think it was the best conversation I’ve had in a long time. She’s from Sant Celoni and has the same name as the girl I bumped into during the workshop—what a coincidence.
 
+ <p align="center">
+<img src="../images/20250808/20250808_Karrantza_Harana_Valle_.JPEG" width="75%" height="75%" />
+</p>
+<p align="center">
+River next to the back way between the outside room and the camping zone
+</p>
+
+
 The afternoon workshop didn’t appeal to me at all. I tried one with a Japanese woman who kept making us act silly to relax and sing, without understanding the purpose of the practice called “ToGo.” I left and ran into another woman who felt the same. We sat down for tea with a craftswoman who was weaving dreamcatchers.
 
 Later, the astrologer—“the guy from Seville”—joined us. Talking about his life, topics of esotericism and occult sciences came up, and I shared an experience known only to a few: the Ouija board.
@@ -64,6 +72,13 @@ Later, the astrologer—“the guy from Seville”—joined us. Talking about hi
 28CC. From 28 to 29. The “Original Camino de Santiago.” It changed my life. Death of the old continuous mental stream and beginning of the present continuous mental state. Or rather, a change of direction—thanks to which I am here now.
 
 He also did my birth chart and, from what little we had shared, guessed my zodiac sign. He told me I have the moon in Libra, meaning I seek balance, I’m tender and loving, I dislike conflict and try to avoid it, and I’m very indecisive. 100% accurate.
+
+ <p align="center">
+<img src="../images/20250808/20250808_carta astral.jpg" width="75%" height="75%" />
+</p>
+<p align="center">
+Astrological chart
+</p>
 
 My neck and upper back hurt a bit from “being an animal” so intensely—I was doing uncontrolled somersaults. As I said, I think I’ve had enough workshops. I’ll try, but if it’s not for me, I’ll leave.
 
@@ -75,7 +90,7 @@ Tonight there’s “El Bhuio.” I’ll check it out, but I’m going in total 
 
 It’s 10:46 p.m. I’ve just returned to the tent after dinner.
 
-While I was first in line, the organisers came to the outdoor dining area. After exchanging glances, I dared to say a few words of gratitude. However, next to me there was a girl who seemed very angry. She was not only pointing out things that could be improved but reproaching them for not offering solutions. When one of them told her to focus on the positive, that made her even angrier. (Although she has a point, I think as the organizer of an event like this, you could show more tact in such situations, since some people don’t respond to reason.)
+While I was first in line, the organisers came to the outdoor dining area. After exchanging glances, I dared to say a few words of gratitude. However, next to me there was a girl who seemed very angry. She was not only pointing out things that could be improved but reproaching them for not offering solutions. When one of them told her to focus on the positive, that made her even angrier. (Although she has a point, I think as the organiser of an event like this, you could show more tact in such situations, since some people don’t respond to reason.)
 
 At first, I didn’t want to eat much, but once I was there, I ended up having dinner.
 
@@ -88,3 +103,10 @@ During the conversation, I remembered something I hadn’t written earlier.
 During the open-eyed meditation, I focused on the sky, and in the distance, I saw subtle white lines forming hexagonal tiles. Then those lines began to move, forming star-like patterns, like a mosaic of blue tiles with white lines.
 
 Then my mind grasped the idea that I was inside a dome, like in the movie The Truman Show.
+
+ <p align="center">
+<img src="../images/20250808/20250808_Karrantza_Harana_valle2316.JPEG" width="75%" height="75%" />
+</p>
+<p align="center">
+Outside room
+</p>

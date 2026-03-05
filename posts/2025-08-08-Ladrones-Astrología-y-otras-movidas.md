@@ -18,7 +18,7 @@
 
  Son las 20:37 y acabo de tener un día súper interesante; como tengo poco tiempo, voy a intentar ser breve.
 
- El taller de la manana que ne me acuerdo del nombre, ha sido una pasada y creo que ha conseguido lo que qeria que era desprenderme del ego, ese falso yo, darme cuenta de que todo lo que me rodea es simplemnte una interpretacion de mi esado mental con la informacion que recibe de los agregados ( sentidos sensoriales + mental).
+ El taller de la mañana del que no me acuerdo del nombre ha sido una pasada y creo que ha conseguido lo que quería, que era desprenderme del ego, ese falso yo, darme cuenta de que todo lo que me rodea es simplemente una interpretación de mi estado mental con la información que recibe de los agregados ( sentidos sensoriales + mental).
 
  La práctica, taller o meditación ha empezado todos tumbados en el suelo, en círculo, en contacto con la tierra, y visualizar el momento en que desde el cielo baja una energía en forma de luz, punto de luz o rayo, y penetra en el preciso instante en que el espermatozoide fecunda el óvulo, pasando por la etapa de feto, el proceso de salir del útero, las primeras caras, sensaciones, de repente. Surge dentro de nosotros el animal de poder; en mi caso, un oso pardo que luego evolucionó a un león. Más tarde, vi un árbol muy alto y empecé a venerarlo como representación de toda la energía de los universos. Lo abracé y me subí en él como un oso perezoso; luego, la imagen de un león vino a mí y mis movimientos empezaron a ser más tranquilos, calmados, majestuosos. 
  Para terminar en forma humana parado sin camiseta y sin gafas enfrente del sol. Simbolizando la clara luz. La cual es la esencia de todos los seres sintientes. 
@@ -40,7 +40,7 @@ Río junto a la vereda de atrás entre la sala externa y la zona de camping
 
  Al rato vino el astrólogo, "Sevillano", y hablando sobre su vida salieron temas de esoterismo, ciencias ocultas, y yo compartí una experiencia que solo unos pocos saben. Lo de la tabla de la Ouija. 28CC, de los 28 a los 29, "Camino de Santiago Original" cambió mi vida. Muerte del viejo continuo mental e inicio del presente continuo mental. mejor dicho cambo de rumbo, que gracias a eso estoy qui.
 
- También me hizo una carta astral y, con lo poco que hemos compartido, supo cuál es mi signo del zodíaco. Además, me dijo que tengo la luna en libra . Lo cual significa que soy una persona que busca el equilibrio, muy tierna y amorosa, que no le gustan los conflictos y que trata de evitarlos, y que soy muy indeciso. 100\%.
+ También me hizo una carta astral y, con lo poco que hemos compartido, supo cuál es mi signo del zodíaco. Además, me dijo que tengo la luna en libra . Lo cual significa que soy una persona que busca el equilibrio, muy tierna y amorosa, que no le gustan los conflictos y que trata de evitarlos, y que soy muy indeciso. 100%.
 
  <p align="center">
 <img src="../images/20250808/20250808_carta astral.jpg" width="75%" height="75%" />
@@ -62,7 +62,7 @@ Carta aastral
 
  Una chica, de nombre desconocido, me invitó a escribir; le conté mi experiencia de esta mañana y me dijo que el oso simboliza sabiduría y que he venido a dejar huella. Además, durante la conversación me he acordado de una parte que no había escrito antes.
 
- Durante la meditación con los ojos abiertos me he enfocado en el cielo  y, en el fondo del todo, veía líneas blancas formando valdosas hexagonales muy sutiles; luego esas líneas se movían y se hacían como estrellas, como de mosaico, de valdosas azules con líneas blancas. Entonces mi mente ha captado la idea de quee staba dentre de una cupula como en el la pelicula del show de truman.
+ Durante la meditación con los ojos abiertos me he enfocado en el cielo  y, en el fondo del todo, veía líneas blancas formando valdosas hexagonales muy sutiles; luego esas líneas se movían y se hacían como estrellas, como de mosaico, de valdosas azules con líneas blancas. Entonces mi mente ha captado la idea de que estaba dentro de una cúpula como en la película del show de Truman.
 
  <p align="center">
 <img src="../images/20250808/20250808_Karrantza_Harana_valle2316.JPEG" width="75%" height="75%" />

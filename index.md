@@ -16,4 +16,4 @@ Notes, reflections, and images.
 
 [Sexto día: La naturaleza del ser y otros fenomenos](posts/2025-08-06-Apapacho-Fest.md) / [Sixth day: Being's nature and other phenomena](posts/2025-08-06-Apapacho-Fest_EN.md)
 
-[Septimo día: Ladrones, astrologia y otras movidas](posts/2025-08-08-Ladrones-Astrologia-y-otras-movidas.md) / [Seventh day: Thieves, astrology and other matters](posts/2025-08-08-Thieves-Astrology-and-other-matters.md)
+[Septimo día: Ladrones, astrologia y otras movidas](posts/2025-08-08-Ladrones-Astrología-y-otras-movidas.md) / [Seventh day: Thieves, astrology and other matters](posts/2025-08-08-Thieves-Astrology-and-other-matters.md)

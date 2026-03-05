@@ -10,10 +10,10 @@ Notes, reflections, and images.
 
 [Tercer día: No demaisado](posts/2025-08-02-No-demasiado.md) / [Third day: Not too much](posts/2025-08-02-Not-too-much.md)
 
-[Cuarto día: Puestos de comida, Salsa y medicina china](posts/2025-08-03-Puestos-de-comida.md) / [Forth day: Food markets, salsa and Chinese medicine](posts/2025-08-03-Food-markets.md)
+[Cuarto día: Puestos de comida, salsa y medicina china](posts/2025-08-03-Puestos-de-comida.md) / [Fourth day: Food markets, salsa and Chinese medicine](posts/2025-08-03-Food-markets.md)
 
 [Quinto día: De UK a Karranza](posts/2025-08-05-De-UK-a-Karranza.md) / [Fifth day: From the UK to Karranza](posts/2025-08-05-From-UK-to-Karranza.md)
 
-[Sexto día: La naturaleza del ser y otros fenomenos](posts/2025-08-06-Apapacho-Fest.md) / [Sixth day: Being's nature and other phenomena](posts/2025-08-06-Apapacho-Fest_EN.md)
+[Sexto día: La naturaleza del ser y otros fenómenos](posts/2025-08-06-Apapacho-Fest.md) / [Sixth day: Being's nature and other phenomena](posts/2025-08-06-Apapacho-Fest_EN.md)
 
-[Septimo día: Ladrones, astrologia y otras movidas](posts/2025-08-08-Ladrones-Astrología-y-otras-movidas.md) / [Seventh day: Thieves, astrology and other matters](posts/2025-08-08-Thieves-Astrology-and-other-matters.md)
+[Séptimo día: Ladrones, astrología y otras movidas](posts/2025-08-08-Ladrones-Astrología-y-otras-movidas.md) / [Seventh day: Thieves, astrology and other matters](posts/2025-08-08-Thieves-Astrology-and-other-matters.md)

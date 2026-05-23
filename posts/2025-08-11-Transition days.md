@@ -146,15 +146,16 @@ I was able to practice my French (super happy about that). Even with poor pronun
 
 At the top of the street, I found the municipal refuge and was lucky enough to get a free bed for 15 euros. They asked me for my pilgrim credential, and I had to collect it from the office. Luckily, the man there spoke both Spanish and French; he gave me loads of information and a complete list of hostels for all the Camino stages.
 
-I went into a shop to buy a hat and, as I turned a corner, I was struck by the intense aromas coming from a spice shop. I entered, and it was a journey for the sense of smell. After spending quite a while there, I ended up buying a mix of nuts, raisins, and chia seeds called “Mélange énergétique.”
-
-Later, I passed by the river where many people were swimming. From there, I wanted to go to Carrefour to buy some dinner. I ate, and now I’m thinking of showering and going to bed because tomorrow I have to wake up very early.
-
  <p align="center">
-<img src="../images/20250811/20250811_Saint_Jean_Pied_de_Port.JPEG" width="75%" height="75%" />
+<img src="../images/20250811/20250811_Saint_Jean_Pied_de_Port1446.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
 Saint Jean Pied de Port High Street
 </p>
+I went into a shop to buy a hat and, as I turned a corner, I was struck by the intense aromas coming from a spice shop. I entered, and it was a journey for the sense of smell. After spending quite a while there, I ended up buying a mix of nuts, raisins, and chia seeds called “Mélange énergétique.”
+
+Later, I passed by the river where many people were swimming. From there, I wanted to go to Carrefour to buy some dinner. I ate, and now I’m thinking of showering and going to bed because tomorrow I have to wake up very early.
+
+
 
 “Bonsoir,” or rather, “bonne nuit.”

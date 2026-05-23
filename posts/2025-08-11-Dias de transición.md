@@ -56,7 +56,7 @@ Luna llena en el Valle de Caranza
 <img src="../images/20250811/20250810_Panyagua.jpg" width="75%" height="75%" />
 </p>
 <p align="center">
-Luna llena en el Valle de Caranza
+Conversación con el Maestro Luis Panyagua
 </p>
 
  Me encontré con Jean-Louis, que me inició en el arte de percibir las energías de los árboles y de las líneas telúricas. Empezamos por el árbol guardián, con un tronco gordo, una cara (norte) con musgo y la otra, corteza, que representan la dualidad de todas las cosas. Mirándolo hacia arriba por detrás, parecía una mujer con 2 pechos y el brazo izquierdo elevado hacia el cielo; le pedí permiso para entrar en el bosque y agradecí.
@@ -95,7 +95,7 @@ Luna llena en el Valle de Caranza
 <img src="../images/20250811/20250811_Saint_Jean_Pied_de_Port.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
-Luna llena en el Valle de Caranza
+Iglesia de Saint Jean Pier de Port
 </p>
 
  Pude practicar mi francés (súper contento), aunque con mala pronunciación y falta de vocabulario, aún me pude defender bien. :)
@@ -105,7 +105,7 @@ Luna llena en el Valle de Caranza
 <img src="../images/20250811/20250811_Saint_Jean_Pied_de_Port1446.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
-Luna llena en el Valle de Caranza
+Calle Principal de Saint Jean Pier de Port
 </p>
 
  Fui a una tienda a comprar un sombrero y, al pasar por una esquina, me llamaron la atención los aromas tan intensos provenientes de una tienda de especias. Entré y fue un viaje para el olfato. Después de estar un buen rato, al final compré una mezcla de frutos secos, pasas y chía llamada "Mélange énergétique". Después pasé por el río en el cual había mucha gente bañándose. De ahí quería ir al supermercado para comprar algo de cena, comí y ahora estoy pensando en ducharme y acostarme porque mañana tengo que madrugar.

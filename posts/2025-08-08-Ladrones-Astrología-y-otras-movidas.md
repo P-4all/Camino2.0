@@ -14,7 +14,7 @@
 
  En la dinámica de ayer coincidimos y se me acercó, sentándose enfrente de mí de manera muy insinuante para hacer la dinámica. Me dijo que tenía un buen trabajo, un piso y la faltaba un novio, una persona con quien compartir su viaje. ¿Quizás pudiera ser ella? ¿Qué vive en Granada y yo en Falmouth? Tendría que venir a Granada y así estar cerca de mis padres. Pero luego, cuando mueran mis padres, solo tendré a ella, que no sé si es mejor que solo. Al menos estaré conmigo y con ella… ¿Y si soy yo quien se declare abiertamente a alguna chica de mi tipo? ¿Y enfrentarme al miedo al rechazo? Quizás mejor una más cerca, en Falmouth.
 
-# Entrada 2:
+### Entrada 2:
 
  Son las 20:37 y acabo de tener un día súper interesante; como tengo poco tiempo, voy a intentar ser breve.
 
@@ -46,7 +46,7 @@ Río junto a la vereda de atrás entre la sala externa y la zona de camping
 <img src="../images/20250808/20250808_carta astral.jpg" width="75%" height="75%" />
 </p>
 <p align="center">
-Carta aastral
+Carta astral
 </p>
 
  Me duele  o me molesta un poco el cuello y la espalda alta de hacer tanto con el animal, ya que he estado dando volteretas sin ningún control. Como decía, creo que ya he tenido bastante de talleres. Voy a probar, pero si veo que no va conmigo, me salgo y ya. 
@@ -54,7 +54,7 @@ Carta aastral
  También he comprado jabones en pastillas de ortigas. En el camino, justo en el tenderete, me he encontrado con uno de los pioneros del camino, quien me ha dado buenos consejos.
  Esta noche toca "El Bhuio". Me asomaré a ver qué tal, pero voy a ir con un rollo total de tranquis.
 
-  # Entrada 3:
+  ### Entrada 3:
  
  Son las 22:46 acabo de llegar a la tienda despues de cenar y primero en la cola ha veindo los organizadores al comdedor exterior y despues de cruzar miradas me he atrevido a intercambiar unas palabras de agradecimiento, sin embargo al lado mio habia una chica que parecia muy enfadada y le estaba no solo apuntando en las cosas posibles a mejorar sino que le reprochaba el que no dieran solutiones, ademas cuando el le dijo que enfocara en lo positivo eso causo aun mas enfado ( aunque tiene razon, creo que como organizador de un evento asi podria tener mas mano izquierd en estas situaciones, ya que hay gente que no atienden a razones.)
 

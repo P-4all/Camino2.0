@@ -38,7 +38,7 @@ Me encuentro al fin en una cafetería enfrente de la estación de autobuses de P
  Son las 18:08; ya estoy instalado en el albergue o refugio municipal de Saint-Jean-Pied-de-Port. Continuando con el día 10, sobre las 4:30 o 5 de la mañana, escuché unos perros ladrando ferozmente y el sonido de unas águilas, como si de una pelea animal se tratara. Luego, más tarde, preguntando a los vecinos, nadie escuchó nada, pero alguien me dijo que hubo uno que fue a caminar y se encontró una oveja muerta por un camino ( con esa luna llena, no me extraña). Ahí está la explicación. 
 
  <p align="center">
-<img src="../images/20250811/20250809_Karrantza_Harana_Valle0112.jpeg" width="75%" height="75%" />
+<img src="../images/20250811/20250809_Karrantza_Harana_Valle0112.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
 Luna llena en el Valle de Caranza
@@ -92,7 +92,7 @@ Luna llena en el Valle de Caranza
  Ya en el pueblo francés fui a buscar albergue; pregunté a una pareja que me indicó. Estaba cerrado, pero el interfono me indicó que podía entrar y dejar la mochila y volver a las 4 para el check-in. Seguí por la calle arriba y se me acercó uno que estaba en la fila del bus; iba loco por una cerveza y no paraba de hablar. Entré en la iglesia y él también entró; di una vuelta y le dije que me iba a sentar un rato, y entonces se fue. Seguro que lo encuentro mañana también.
 
  <p align="center">
-<img src="../images/20250811/20250811_Saint_jean_Pied_de_Port.JPEG" width="75%" height="75%" />
+<img src="../images/20250811/20250811_Saint_Jean_Pied_de_Port.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
 Luna llena en el Valle de Caranza
@@ -102,7 +102,7 @@ Luna llena en el Valle de Caranza
  Arriba del todo de la calle encontré el refugio municipal y tuve la suerte de encontrar una cama libre por 15 euros. Me pidieron la credencial y tuve que ir a recogerla a la oficina. En la oficina, suerte que el hombre hablaba español y francés; me dio un montón de información con un listado de todos los albergues de todas las etapas del camino.
 
  <p align="center">
-<img src="../images/20250811/20250811_Saint_jean_Pied_de_Port1446.JPEG" width="75%" height="75%" />
+<img src="../images/20250811/20250811_Saint_Jean_Pied_de_Port1446.JPEG" width="75%" height="75%" />
 </p>
 <p align="center">
 Luna llena en el Valle de Caranza

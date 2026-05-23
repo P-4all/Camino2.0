@@ -18,4 +18,4 @@ Notes, reflections, and images.
 
 [Séptimo día: Ladrones, astrología y otras movidas](posts/2025-08-08-Ladrones-Astrología-y-otras-movidas.md) / [Seventh day: Thieves, astrology and other matters](posts/2025-08-08-Thieves-Astrology-and-other-matters.md)
 
-[Lunes 11, Agosto: Dias de Transicion](posts/2025-08-11-Dias de transicion.md) / [Monday 11, August: Transition days](posts/2025-08-11-Transition days.md)
+[Lunes 11, Agosto: Dias de Transicion](posts/2025-08-11-Dias-de-transicion.md) / [Monday 11, August: Transition days](posts/2025-08-11-Transition-days.md)
